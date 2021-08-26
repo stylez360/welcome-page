@@ -1,1 +1,1 @@
-# Welcom to Stylez 360
+# Welcome to Stylez 360
